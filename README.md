@@ -2,7 +2,7 @@
 - 👀 I’m interested in ... LUH GEEKY
 - 🌱 I’m currently learning ... JUGG
 - 💞️ I’m looking to collaborate on ... JUGGIN
-- 📫 How to reach me ... PERC
+- 📫 How to reach me ... PRAYER
 
 <!---
 jasontfk/jasontfk is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
